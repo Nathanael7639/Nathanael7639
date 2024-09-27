@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nathanael7639
-- 👀 I’m interested in competitive pokemon (VGC)
+- 👀 I’m interested in competitive pokemon (VGC), and am a roller coaster enthusiast. 
 - 🌱 I’m currently learning things
 - 💞️ I’m looking to collaborate on Team 4201 The Vitruvian Bots
 - 📫 How to reach me is something you will never know
